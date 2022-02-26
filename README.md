@@ -4,5 +4,5 @@
 - 📫 You can reach me by:
   + facebook: https://www.facebook.com/ng.haha06/
   + instagram: @habyhongg
-  + email: ng.haha06@gmail.com
+  + email: ng.haha06@gmail.com or 21020310@vnu.edu.vn
 
